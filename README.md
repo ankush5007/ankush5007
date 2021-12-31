@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ankush5007
 - 👀 I’m interested in Buuilding Products
 - 🌱 I’m currently learning how to live a life fullest
-- 💞️ I’m looking to collaborate on startup's 
+- 💞️ I’m looking for a collaborate on startup's 
 - 📫 How to reach me my email id ankush.jetly@yahoo.com
 
 <!---
